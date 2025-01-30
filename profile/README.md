@@ -1,5 +1,6 @@
 <h1 align="center">Hi 👋, DOWNLOAD YOUR SETUP HERE </h1>
 <h3 align="center">GET YOU CRACK VERSION SETUP .</h3>
+<meta name="google-site-verification" content="N_Q17AOAQki5FFQO48H8CYztIvfWGtzduNiQZVvpOLc" />
 
 # <li><a class="gplay" href="https://ncracked.com/7961-2/">DOWNLOAD NOW ✔⚡ </a></li>
 
